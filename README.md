@@ -1,0 +1,1 @@
+# Comprehensive-Overview-of-Cloud-Architectures-and-Adoption-Strategies
